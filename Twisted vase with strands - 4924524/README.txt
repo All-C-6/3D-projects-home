@@ -1,0 +1,1 @@
+Twisted vase with strands by alecs_form on Thingiverse: https://www.thingiverse.com/thing:4924524
