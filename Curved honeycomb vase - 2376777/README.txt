@@ -1,0 +1,1 @@
+Curved honeycomb vase by eggnot on Thingiverse: https://www.thingiverse.com/thing:2376777
